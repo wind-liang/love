@@ -1,2 +1,1 @@
-## liang and jkyi love forever
-## 在线预览 http://love.windliang.cc
+# 在线预览 http://love.windliang.cc 需要科学上网
